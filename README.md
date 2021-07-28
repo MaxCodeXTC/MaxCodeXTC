@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+Thanks for checking me out.
+My Profile is currently a Work-In-Progress.
+Do check back in a month or so!
+
+See you soon.    :)
+
 <!--
 **MaxCodeXTC/MaxCodeXTC** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
