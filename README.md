@@ -2,7 +2,7 @@
 
 Thanks for checking me out.
 My Profile is currently a Work-In-Progress.
-Do check back in a month or so!
+Do check back in mid-year!
 
 See you soon.    :)
 
